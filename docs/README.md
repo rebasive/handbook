@@ -38,7 +38,7 @@ Top 5 reasons to work for Rebasive:
 
 1. Focused on results, not on long hours, so that you can have a life and don't burn out.
 
-1. Everyone works remote, but you don't *feel* remote. Virtual office.
+1. Everyone works remotely, but you don't *feel* remote. Virtual office.
 
 1. Giveaways on certain weekends :-D.
 
